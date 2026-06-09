@@ -1,4 +1,4 @@
-
+Experience anime card clash like never before with anime card clash smart Scripts, the #1 Script. Includes private server access and anti-ban for
 
 
 
